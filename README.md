@@ -7,7 +7,9 @@
 
 - Devloper who is trying the best to be best 🪶
 - Interested in c++💡
-- Cybersecurity student 🍃
+
+- Cybersecurity and network intelligence student at the JordaniJordanian UUniversity 🍃
+-ICT 2025 student 🌸 
 - If you are passionate person and your energy is unlimited, then you are in the best place for you🪐
 - Lifes is beautiful ❤️
 
